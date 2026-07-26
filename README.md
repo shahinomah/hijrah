@@ -1,2 +1,44 @@
 # hijrah
-Cinta dan Hijrahnya
+*Cinta dan Hijrahnya*
+
+
+Tengaharinya tadi ~meredup lagi, 
+dan malamnya pula terusan bersunyi, 
+Mungkin mentari siang terlitup dibalik awan, 
+dan malamnya bintang tak berteman bulan, 
+~Itulah hari dan malam yang selalu. 
+
+Deru angin menampar pipi ~kanan dan kiri, 
+Kadang agas menyengat enak telunjuk jari, 
+Putih pepasir, gelombang lembut dan buihan seni, 
+di pantai Pengerang tegar ia sendiri lagi, 
+~Itulah menungan yang dalam semahu. 
+
+Tapi semua yang selalu dan dahulu itu, 
+tidak mampu mengubah semalam yang lesu, 
+buat seorang tanpa sejarah tauladan lagu, 
+~Tentu iramanya esok tetaplah begitu. 
+
+
+Di meja kayu, diari buku, dan pena biru…, 
+Dan di balik mukanya ~ruang kisah hijrah yang membaru, 
+Diari tekad bertajuk matlamat mengubah hati, 
+Cinta yang manusiawi, kini cinta yang syurgawi, 
+
+Terhijrah bersama abdi jasad dan nurani hati..., 
+Ter‘imanlah amalnya penuhi makna ke seluruh isi, 
+Dihemah tahajud ~malamnya sunyi pun tidak lagi, 
+Dan redup tadinya berubah ke sinar iman paling suci.
+
+
+Antara ikhlas amal insani, dan redha agung ilahi, 
+Maha mengetahui jualah empunya langit dan bumi ini, 
+Dari Khaliq asal datangnya kita sejak azali, 
+Maka juga pada Nya tempat kembali yang abadi.
+
+
+
+
+Shahino Mah ... 
+Pengerang, Johor (2009)
+
