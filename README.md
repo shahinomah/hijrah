@@ -1,5 +1,9 @@
 # hijrah
-*Cinta dan Hijrahnya*
+
+<img width="391" height="658" alt="Cinta_dan_Hijrahnya_oleh_Shahino_Mah" src="https://github.com/user-attachments/assets/7c71d290-d3e0-4ab9-9345-4b1934a56089" />
+
+
+Cinta dan Hijrahnya
 
 
 Tengaharinya tadi ~meredup lagi, 
@@ -40,5 +44,5 @@ Maka juga pada Nya tempat kembali yang abadi.
 
 
 Shahino Mah ... 
-Pengerang, Johor (2009)
+Pengerang, Johor
 
