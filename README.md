@@ -52,6 +52,5 @@ Pengerang, Johor
 
 (01/01/2010)
 
-* Setelah lebih 16 tahun tersimpan (sejak tahun akhir pengajian di UM) dapat jua mendengar tulisan ini dilagukan... 
-Semoga bermanfaat (^_^)V
+* Setelah lebih 16 tahun tersimpan (sejak tahun akhir pengajian di UM) dapat juga mendengar tulisan ini dilagukan
 
