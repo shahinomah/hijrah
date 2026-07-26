@@ -5,6 +5,7 @@
 
 <img width="2553" height="1991" alt="Pemuda_di_Pantai" src="https://github.com/user-attachments/assets/8ef3b52c-651b-4841-b4d4-9a5e9b00f898" />
 
+Pautan: https://youtu.be/0FBHdG9fd3k
 
 *Cinta dan Hijrahnya*
 
