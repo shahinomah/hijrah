@@ -3,13 +3,8 @@
 <img width="391" height="658" alt="Cinta_dan_Hijrahnya_oleh_Shahino_Mah" src="https://github.com/user-attachments/assets/7c71d290-d3e0-4ab9-9345-4b1934a56089" />
 
 
-* 
-* 
-*
-* 
-* 
-* 
-* 
+<img width="2553" height="1991" alt="Pemuda_di_Pantai" src="https://github.com/user-attachments/assets/8ef3b52c-651b-4841-b4d4-9a5e9b00f898" />
+
 
 *Cinta dan Hijrahnya*
 
