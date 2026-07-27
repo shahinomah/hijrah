@@ -52,5 +52,4 @@ Pengerang, Johor
 
 (01/01/2010)
 
-* Lebih 16 tahun tulisan ini tersimpan sejak tahun akhir pengajian di UM
 
